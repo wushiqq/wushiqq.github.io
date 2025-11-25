@@ -1,1 +1,1 @@
-# wushiqq.github.io
+# [wushiqq.github.io](https://hoo.be/aiqind)
